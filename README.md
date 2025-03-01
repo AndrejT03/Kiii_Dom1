@@ -1,1 +1,3 @@
-Prva Domashna - KIII Izrabotena od: Andrej Trajkovski
+Prva Domashna - KIII
+
+Izrabotena od: Andrej Trajkovski
